@@ -2,8 +2,8 @@
 - 👀 I’m interested in ...Cybersecurity 
 - 🌱 I’m currently learning ... Computer Science 
 - 💞️ I’m looking to collaborate on ...AI and hacking scams
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me ... my cell number 
+- 😄 Pronouns: ... He
 - ⚡ Fun fact: ... I'm dying 
 
 <!---
